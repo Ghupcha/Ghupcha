@@ -1,4 +1,4 @@
-![Banner](https://source.unsplash.com/1600x400/?futuristic,cyberpunk,technology)
+![Banner](https://mir-s3-cdn-cf.behance.net/project_modules/fs/79731568097599.5b50bca477735.jpg)
 
 # 🚀 Welcome, Traveler! I'm **Lord Akash** 🛡️ | House of Giri ⚔️
 
