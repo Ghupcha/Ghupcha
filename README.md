@@ -1,6 +1,6 @@
 ![Banner](https://mir-s3-cdn-cf.behance.net/project_modules/fs/79731568097599.5b50bca477735.jpg)
 
-# 🚀 Welcome, Traveler! I'm **Akash** 🛡️|⚔️
+# 🚀 Welcome, Traveler! I'm **Orkish** 🛡️|⚔️
 
 I'm a **visionary coder, AI enthusiast, and tech sorcerer** wielding the most powerful tools to shape the future. My journey is one of **innovation, problem-solving, and boundless curiosity**.
 
